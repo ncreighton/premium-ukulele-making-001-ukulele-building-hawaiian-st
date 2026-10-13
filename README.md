@@ -1,0 +1,2 @@
+# premium-ukulele-making-001-ukulele-building-hawaiian-st
+Tired of ukulele plans that feel like IKEA furniture? This workshop teaches you to build an instrument that sings with authentic Hawaiian soul — by mastering the forgotten art of traditional string craft.  Most ukulele building guides skip the heart: the strings. Our workshop pairs step-by-step construction with a deep dive into Hawaiian string win
